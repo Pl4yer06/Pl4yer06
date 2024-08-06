@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Pl4yer06
-- 👀 I’m interested in proggaming
+- 👀 I’m interested in indie games
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate with no one
 - ⚡ Fun fact: i'm Br (brazilian)
